@@ -1,1 +1,0 @@
-# hoofdklem-dining-table
